@@ -1,1 +1,0 @@
-# trindade-exercicio-m2s06
